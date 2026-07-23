@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https;//360zbty.org.cn
+</code></p><br><br><h3>海大集团饲料市占率提升，单季业绩预告超预期</h3><br><p>藏羚羊种群数量突破30万只，从濒危物种恢复至无危。<br><br> | 来源：<code>https;//360zqyyzbbgw.cn
+</code></p><br><br><h3>央行下调MLF利率10BP，货币政策宽松力度加大</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>https;//360zqyyzbbgw.com.cn
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持。<br><br> | 来源：<code>https;//360zqyyzbbgw.org.cn
+</code></p><br><br><h3>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性</h3><br><p>理想汽车涨超8.5%，L系列车型月销破4万。<br><br> | 来源：<code>https;//360zxtyzbmfgq.cn
+</code></p><br><br><h3>大模型在电力巡检领域应用，缺陷识别效率提升5倍</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>https;//360zxtyzbmfgq.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>长城国家文化公园建设完工，沿线游览步道贯通超万公里。<br><br> | 来源：<code>https;//360zxtyzbmfgq.org.cn
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>人民币对美元汇率升值至6.7关口，外汇储备规模稳定在3.3万亿美元。<br><br> | 来源：<code>https;//56zbtygw.cn
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>https;//56zbtygw.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https;//56zbtygw.org.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>全国步行街改造升级完成，200条示范街夜间营收占比超70%。<br><br> | 来源：<code>https;//587tyzbpt.cn
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>绿电交易规模翻倍，绿电运营板块集体上涨。<br><br> | 来源：<code>https;//587tyzbpt.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https;//587tyzbpt.org.cn
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>https;//61tyzbw.cn
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>西藏暑期游客量突破200万人次，高原旅游热度创新高。<br><br> | 来源：<code>https;//61tyzbw.com.cn
+</code></p><br><br><h3>装配式建筑推广政策，装配式建筑标的全线异动</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https;//61tyzbw.org.cn
+</code></p><br><br><h3>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>https;//6686tyzb.cn
+</code></p><br><br><h3>中国女篮亚洲杯夺冠，时隔12年重登亚洲之巅</h3><br><p>国内露营装备市场规模破千亿，国产品牌占据90%市场份额。<br><br> | 来源：<code>https;//6686tyzb.com.cn
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>外资持续流入万科A，地产龙头外资持仓占比突破2%。<br><br> | 来源：<code>https;//6686tyzb.org.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>外资机构席位净买入沪硅产业8000万，硅片龙头获外资加仓。<br><br> | 来源：<code>https;//66tyzb.cn
