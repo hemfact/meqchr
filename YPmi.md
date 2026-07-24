@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>贵州茅台站稳1720元，批价回升带动板块情绪</h3><br><p>储能大项目集中并网，大储板块迎来行情催化。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>招商银行零售银行优势：国内零售银行龙头的经营质量</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>国际地缘与全球经济（100条）。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>炒股到最后拼的是心态：再好的牛股拿不住也是白搭。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>巴西经济复苏，二季度农业工业双增长</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>千禾味业放量上涨4.3%，零添加产品份额持续提升。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>万华化学MDI技术优势：化工龙头的全产业链协同价值。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>河南卫视中国节日系列节目全网播放量突破200亿次</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>大秦铁路异动拉升2.8%，煤炭运输量稳步提升。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>深高速放量上涨2.5%，深圳区域路网资产优质</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>小米小爱大模型升级，全场景智能互联覆盖亿级设备。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>以色列经济逐步复苏，高科技产业重回增长轨道</h3><br><p>全国扬子鳄野生种群数量突破2万只，野外放归成效显著。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>极端高温天气来袭，电力运营板块集体拉升。<br><br> | 来源：<code>www.shutaotc.cn
