@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>赛力斯单日大涨8.3%，问界新车型销量引爆市场</h3><br><p>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局。<br><br> | 来源：<code>https://nuyouwang.com.cn
+</code></p><br><br><h3>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓</h3><br><p>量子计算原型机新突破，量子科技板块集体拉升。<br><br> | 来源：<code>https://od-sports-pro.com.cn
+</code></p><br><br><h3>亿纬锂能异动拉升6.3%，大储订单持续超预期</h3><br><p>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一。<br><br> | 来源：<code>https://oftuun.cn
+</code></p><br><br><h3>百亿私募组团调研生物育种标的，玉米种子推广面积超预期</h3><br><p>全球储能市场规模突破500GWh，新型电力系统建设提速。<br><br> | 来源：<code>https://open-site-vip.com.cn
+</code></p><br><br><h3>阳光电源跳空高开，缺口支撑下的短期趋势判断</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://ou-meirihan.com.cn
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://oumei-a-v.com
+</code></p><br><br><h3>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑</h3><br><p>温氏股份禽畜双主业布局：养殖行业的稳健成长逻辑。<br><br> | 来源：<code>https://oumei-mv.com.cn
+</code></p><br><br><h3>山西汾酒涨超5.1%，青花系列全国化推进加速</h3><br><p>天齐锂业涨超5.8%，锂矿自给率优势持续凸显。<br><br> | 来源：<code>https://oumeijingpin.com.cn
+</code></p><br><br><h3>中兴通讯算力业务爆发，单季净利润同比增80%</h3><br><p>登海种业玉米种子优势：国内玉米种子赛道的龙头价值。<br><br> | 来源：<code>https://oumeiquyi.com.cn
+</code></p><br><br><h3>教育大模型落地全国万所学校，个性化辅导覆盖千万学生</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>https://oumeiwang.com.cn
+</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://oumeiwuma.com.cn
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>理想汽车涨超8.5%，L系列车型月销破4万。<br><br> | 来源：<code>https://oumeiyiquerqu.com.cn
+</code></p><br><br><h3>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>https://p-zhan-shipin.com.cn
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>天齐锂业涨超5.8%，锂矿自给率优势持续凸显。<br><br> | 来源：<code>https://p-zhanshipin.com.cn
+</code></p><br><br><h3>天邦食品减亏路径：养殖行业周期底部的经营优化逻辑</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>https://pa-papa.com.cn
+</code></p><br><br><h3>中远海控行业周期复盘：集运行业的供需格局长期演变</h3><br><p>万科A核心城市去化超预期，单季业绩预告环比改善。<br><br> | 来源：<code>https://pa-papashipin.com.cn
+</code></p><br><br><h3>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>https://paomianfan.com.cn
+</code></p><br><br><h3>天际股份放量上涨4.3%，锂电材料业务盈利修复</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>https://paomianfanroude.com.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://paozaiwojiadelamei.com.cn
+</code></p><br><br><h3>海南自贸港封关运作倒计时，海南本地股全线异动</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://papa-shipin.com.cn
