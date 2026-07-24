@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://kaiyun-sports-auth.com.cn
+</code></p><br><br><h3>产业基金大手笔增持国产EDA企业，助力核心技术研发突破</h3><br><p>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏。<br><br> | 来源：<code>https://kaiyun-sports-hq.com.cn
+</code></p><br><br><h3>苹果AI服务正式上线，苹果产业链标的集体反弹</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://kaiyun-sports-net.com.cn
+</code></p><br><br><h3>降准定向支持科技创新，科技成长板块获流动性利好</h3><br><p>全国200城启动夜间消费节，夜间经济规模突破15万亿。<br><br> | 来源：<code>https://kaiyun-sports-official.com
+</code></p><br><br><h3>知名私募举牌MR产业链标的，调研后直接大额扫货</h3><br><p>国产航母新进展，军工船舶板块集体异动。<br><br> | 来源：<code>https://kaiyun-sports-plat.com.cn
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>https://kaiyun-tiyu-go.com.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>亨通光电涨超4.4%，海洋能源业务贡献增量。<br><br> | 来源：<code>https://kaiyun-tiyu-hq.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>https://kaiyun-tiyu-pro.com.cn
+</code></p><br><br><h3>正泰电器放量上涨3.7%，户用光伏装机量领先</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://kaiyun-url-vip.com.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://kaiyuncom-vip.com.cn
+</code></p><br><br><h3>游资顶级席位打板中兴通讯2.2亿，通信标的获短线资金热炒</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>https://kaiyunqiumi.com.cn
+</code></p><br><br><h3>全国湿地保护率达55%，新增国家湿地公园超百个</h3><br><p>金砖国家新成员全部完成入盟流程，成员国总数达15国。<br><br> | 来源：<code>https://kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>航发动力技术壁垒：航空发动机国产替代的核心路径</h3><br><p>九寨沟暑期恢复全部开放，单日接待游客量突破4万。<br><br> | 来源：<code>https://kan-pianwangzhan.com.cn
+</code></p><br><br><h3>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://kanpian-wangzhan.com.cn
+</code></p><br><br><h3>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍</h3><br><p>全国农业面源污染治理成效显著，化肥使用量连续11年下降。<br><br> | 来源：<code>https://kanpianwang.com.cn
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>https://kanpianwangzhan.com.cn
+</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>https://keai-xiaoshuo.com.cn
+</code></p><br><br><h3>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https://kuai-maoapp.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>10年期国债收益率下行至历史低位，高股息资产配置价值凸显。<br><br> | 来源：<code>https://kuai-maoduanshipin.com.cn
+</code></p><br><br><h3>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿</h3><br><p>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团。<br><br> | 来源：<code>https://kuai-maoshipin.cn
