@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%</h3><br><p>腾讯混元大模型企业服务升级，助力政务、金融行业数字化。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>大模型在航空领域应用，飞行模拟训练效率提升30%</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>俄乌冲突交换战俘达成协议，千名被俘人员获释</h3><br><p>国内老年文旅市场升温，银发游订单同比增长70%。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>宁德时代跳空高开6.4%，麒麟电池商业化落地加速</h3><br><p>全国乡村旅游重点村超千家，带动千万农民家门口就业。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>全国塑料吸管全面替代完成，可降解产品覆盖所有餐饮场景</h3><br><p>中国门球队世锦赛夺得冠军，中老年运动项目国际领先。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲</h3><br><p>低空经济发展规划出台，低空经济标的拉升。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>人民币汇率大幅升值，航空造纸板块集体上涨。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>海南自贸港封关运作准备全面就绪，政策红利加速释放</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>出口退税政策优化，出口导向型标的拉升</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>东北振兴政策升级，东北本地股板块走强。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>量子计算原型机新突破，量子科技板块集体拉升</h3><br><p>紫金矿业创阶段新高，黄金有色板块沿趋势上行。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>宝钢股份企稳回升，钢铁行业盈利预期边际改善</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>上半年全国文旅消费总额突破3万亿元，同比增长22%。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>亿纬锂能换手率超3%，量能放大下的资金动向解析</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>www.geeksuper.cn
