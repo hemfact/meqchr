@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>全球机器人装机量突破500万台，工业自动化加速普及。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
+</code></p><br><br><h3>端侧大模型普及，旗舰手机本地运行70B参数大模型</h3><br><p>沪硅产业硅片国产替代：12英寸大硅片的产能释放逻辑。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
+</code></p><br><br><h3>生物育种产业化政策，转基因种业标的走强</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>中国女子棒球队闯入世界杯八强，项目发展迎来新机遇。<br><br> | 来源：<code>https://xingfudaohang.cn
+</code></p><br><br><h3>全国新增10家5A级景区，文旅品质持续升级</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>中兴通讯算力布局：从通信设备到算力基础设施的拓展</h3><br><p>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势</h3><br><p>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼</h3><br><p>海天味业调味品渠道优势：国内调味品龙头的下沉网络。<br><br> | 来源：<code>https://xingkongchuanmeizaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://xingkongqiutan.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>全国农业面源污染治理成效显著，化肥使用量连续11年下降。<br><br> | 来源：<code>https://xingkongwuxianchuanmei.com.cn
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>中兴通讯算力布局：从通信设备到算力基础设施的拓展。<br><br> | 来源：<code>https://xingkongying-shi.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升。<br><br> | 来源：<code>https://xingkongyingyuanzaixianguankanmianfei.com.cn
+</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>自动驾驶大模型迭代，端到端算法落地量产车型。<br><br> | 来源：<code>https://xingshi-zixunyuan.com.cn
+</code></p><br><br><h3>全国危险废物处置能力突破2亿吨/年，安全处置率100%</h3><br><p>中国通号高铁信号订单高增，单季业绩预告超预期。<br><br> | 来源：<code>https://xiuxiu-dongman.com.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>全国县域商业体系建设完成，农村消费市场潜力持续释放。<br><br> | 来源：<code>https://xiuxiu-shipin-zh.com.cn
