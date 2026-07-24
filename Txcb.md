@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宁德时代商业模式拆解：动力电池龙头的护城河有多深</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>https://pg-elec-hub.com.cn
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼。<br><br> | 来源：<code>https://pg-ent-web.com.cn
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>https://pg-gaming-pro.com.cn
+</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://pg-guan-wang.com.cn
+</code></p><br><br><h3>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入</h3><br><p>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖。<br><br> | 来源：<code>https://pg-guoji-008.com
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>长江流域水质优良断面比例达99%，生态环境持续改善。<br><br> | 来源：<code>https://pg-mianfei-shiwan.com.cn
+</code></p><br><br><h3>通威股份渔光互补模式：农业+新能源的协同发展路径</h3><br><p>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团。<br><br> | 来源：<code>https://pg-moniqi-shiwan.com.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒。<br><br> | 来源：<code>https://pg-play-online.com.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>https://pg-sim-online.com.cn
+</code></p><br><br><h3>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://pg-zhengtu-guoji.com
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>北向资金单日扫货贵州茅台8亿，外资龙头标的持仓提升。<br><br> | 来源：<code>https://pianziziyuanwangzhan.com.cn
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://picacg-guan-wang.com.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>https://pinlanzheng.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓。<br><br> | 来源：<code>https://pipi-yingyuan-zh.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域。<br><br> | 来源：<code>https://pipiyingyuan.org.cn
+</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线</h3><br><p>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧。<br><br> | 来源：<code>https://pipiyingyuanwang.com.cn
+</code></p><br><br><h3>社保基金现身工业AI龙头调研，行业渗透率数据首次公开</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>https://ppkhz.cn
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>海康威视AI转型进展：传统安防龙头的第二成长曲线。<br><br> | 来源：<code>https://pro-anbo-sports.com.cn
+</code></p><br><br><h3>地方国资战略入股人形电机龙头，助力核心零部件国产化</h3><br><p>旅游年卡覆盖超200城，一票通玩激活本地休闲消费。<br><br> | 来源：<code>https://pro-beibosports.com.cn
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://pro-by-yundong.com.cn
