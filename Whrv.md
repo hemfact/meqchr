@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分05秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升</h3><br><p>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>浙江建投区域基建订单饱满，单季业绩预告超预期</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>洋河股份梦之蓝放量，单季业绩预告超预期。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>全国老字号品牌超万家，国潮复兴带动传统产业转型升级</h3><br><p>家电以旧换新政策加码，白电板块集体反弹。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
+</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://zh-nan-tong-wang.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>https://zh-ntr.com.cn
+</code></p><br><br><h3>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复</h3><br><p>头部券商到访游戏出海龙头，海外流水增速数据首次公开。<br><br> | 来源：<code>https://zh-panjinlian.com.cn
+</code></p><br><br><h3>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>https://zh-pipi-yingyuan.com.cn
+</code></p><br><br><h3>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场</h3><br><p>泸州老窖品牌升级：国窖1573的高端化成长路径解析。<br><br> | 来源：<code>https://zh-pipiyingyuan.com.cn
+</code></p><br><br><h3>双汇发展异动拉升2.9%，肉制品盈利边际改善</h3><br><p>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局。<br><br> | 来源：<code>https://zh-pochu.com.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性。<br><br> | 来源：<code>https://zh-quanluo.com.cn
+</code></p><br><br><h3>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解</h3><br><p>上半年进出口总额同比增长4.2%，外贸韧性持续凸显。<br><br> | 来源：<code>https://zh-rujiao.com.cn
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>头部机构组团到访创新药龙头，核心管线临床三期数据披露。<br><br> | 来源：<code>https://zh-sanjipian.com.cn
+</code></p><br><br><h3>法律大模型助力普法，AI法律咨询覆盖千万基层群众</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线。<br><br> | 来源：<code>https://zh-saohuo.com.cn
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升。<br><br> | 来源：<code>https://zh-sejishikong.com.cn
+</code></p><br><br><h3>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://zh-shaofu.com.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>https://zh-shouyin.com.cn
+</code></p><br><br><h3>机构资金集中买入海大集团6300万，饲料龙头获机构抱团</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>https://zh-shunu.com.cn
