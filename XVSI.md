@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分05秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>药明康德异动拉升5.2%，海外新药订单持续落地</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>知名私募调研钠电池龙头，量产线投产时间点首次公开。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>调味品行业标准升级，调味品龙头板块走强</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家</h3><br><p>大模型在环保领域应用，污染源识别准确率超96%。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>甘肃建投涨超3.0%，一带一路西北基建项目推进。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>国内研学旅行市场规模破千亿，覆盖超5000万中小学生</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>中医药振兴发展规划，中药全板块集体上涨</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>AI绘画工具用户破亿，国潮风格生成模型成爆款</h3><br><p>河南卫视中国节日系列节目全网播放量突破200亿次。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>全球机器人装机量突破500万台，工业自动化加速普及。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>中国中车全球轨交布局：一带一路下的海外订单增长逻辑。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>多地出台民宿管理新规，规范行业发展保障游客权益</h3><br><p>全国风电发电量上半年同比增长38%，绿电交易规模突破2000亿千瓦时。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>宁德时代异动拉升6.2%，海外储能项目持续落地</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>产业链产品涨价类（100个）。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>全国夜间文旅消费集聚区破200个，点亮城市夜经济</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>大消费板块估值修复：白酒、家电、医药的布局机会对比</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>www.michaelyang.cn
