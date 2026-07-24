@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分26秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://new-xingkong-ent.com.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>上汽集团放量上涨3.5%，新能源汽车出口超预期。<br><br> | 来源：<code>https://new-xingkongyingshi.com.cn
+</code></p><br><br><h3>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://new-xiuxiushipin.com.cn
+</code></p><br><br><h3>深股通席位单日买入海天味业6100万，调味品标的增持</h3><br><p>老旧小区改造升级，家装家居标的全线拉升。<br><br> | 来源：<code>https://new-yazhoujingpin.com.cn
+</code></p><br><br><h3>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒</h3><br><p>美的集团海外收入高增，前三季度业绩预增超25%。<br><br> | 来源：<code>https://new-yazhouwuma.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>氢能产业中长期规划，氢能源全板块集体上涨。<br><br> | 来源：<code>https://new-yazhouzaixian.com.cn
+</code></p><br><br><h3>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破</h3><br><p>跨境电商出口高增，跨境电商板块全线爆发。<br><br> | 来源：<code>https://new-yeyelu.cn
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>https://new-yinghuashipin.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>万华化学MDI技术优势：化工龙头的全产业链协同价值。<br><br> | 来源：<code>https://new-yiqicao.com.cn
+</code></p><br><br><h3>超190家机构到访储能电池标的，海外户储订单超预期</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>https://new-zaixianguankan.com.cn
+</code></p><br><br><h3>跨境电商综合试验区扩容，跨境物流板块集体上涨</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>https://new-zunlongsports.com.cn
+</code></p><br><br><h3>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>https://ng-nangong-download.com
+</code></p><br><br><h3>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列</h3><br><p>儿童用药扶持政策，儿科医药标的全线拉升。<br><br> | 来源：<code>https://nianqing-de-muqin-zaixian-guankan.com.cn
+</code></p><br><br><h3>国内露营装备市场规模破千亿，国产品牌占据90%市场份额</h3><br><p>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定。<br><br> | 来源：<code>https://nianqingde.com.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇。<br><br> | 来源：<code>https://nianqingdemuqin.net.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>https://ningmeng-zh.com.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>https://niubaqiuxun.com.cn
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>机构资金联手买入东方电气6200万，能源装备龙头获抱团。<br><br> | 来源：<code>https://niunaibaozangku.com.cn
+</code></p><br><br><h3>城市防洪排涝政策，管网建设标的全线拉升</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>https://niunaidongman.com.cn
+</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>https://niunaidongmanku.com.cn
