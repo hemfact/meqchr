@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>https://anzhuohuangyou.com.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>财政部新增专项债限额1.5万亿元，重点支持基建项目建设。<br><br> | 来源：<code>https://aocai-2448442-net.com
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://app-188-net.com.cn
+</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>东方财富放量大涨，券商异动下的人气激活信号。<br><br> | 来源：<code>https://app-biwei-vip.com.cn
+</code></p><br><br><h3>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>https://app-by-sports.com.cn
+</code></p><br><br><h3>机构资金集中买入华域汽车7800万，零部件龙头获抱团</h3><br><p>山东路桥放量上涨3.5%，基建订单持续饱满。<br><br> | 来源：<code>https://app-ml-tiyu.com.cn
+</code></p><br><br><h3>伊利股份产品矩阵：全品类乳制品的市场覆盖优势</h3><br><p>东方电气氢能布局：能源装备龙头的第二成长曲线解析。<br><br> | 来源：<code>https://aqdav.org.cn
+</code></p><br><br><h3>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎</h3><br><p>黄河流域生态保护和高质量发展新规划发布。<br><br> | 来源：<code>https://ba-geheiliao.com.cn
+</code></p><br><br><h3>洋河股份渠道改革：白酒企业渠道优化的成功案例解析</h3><br><p>荣盛石化涨超4.1%，新材料业务贡献新增量。<br><br> | 来源：<code>https://bachabacha.com.cn
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>中国门球队世锦赛夺得冠军，中老年运动项目国际领先。<br><br> | 来源：<code>https://bafuli.com.cn
+</code></p><br><br><h3>跨境电商综合试验区扩容，跨境物流板块集体上涨</h3><br><p>煤炭价格企稳回升，煤炭高股息标的集体上涨。<br><br> | 来源：<code>https://bageheiliao.com.cn
+</code></p><br><br><h3>中拉经贸合作论坛举办，达成超200亿美元合作协议</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>https://bageheiliao.org.cn
+</code></p><br><br><h3>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起</h3><br><p>国产网络文学出海市场规模突破40亿美元，全球读者超2亿。<br><br> | 来源：<code>https://bai-si.com.cn
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://baicaiba-bocai-bbs.com
+</code></p><br><br><h3>辽宁高速涨超1.6%，东北基建带动车流量增长</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://baihe-hui.com.cn
+</code></p><br><br><h3>核电新项目审批重启，核电产业链标的全线拉升</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://baihubi.org.cn
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>全国酸雨区面积占比降至3.2%，降水质量持续改善。<br><br> | 来源：<code>https://baihuluoli.com.cn
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>https://baihuziwei.com.cn
+</code></p><br><br><h3>恒瑞医药涨超5%，创新药管线进入收获期</h3><br><p>宁德时代异动拉升6.2%，海外储能项目持续落地。<br><br> | 来源：<code>https://baisijk.com.cn
+</code></p><br><br><h3>五粮液重回165元，中秋旺季备货提前启动</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://baisijkbaihu.com.cn
