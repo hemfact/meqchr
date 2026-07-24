@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期</h3><br><p>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局。<br><br> | 来源：<code>https://yongli-huanggong.com.cn
+</code></p><br><br><h3>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野</h3><br><p>中澳关系持续回暖，双边贸易额同比增长12%。<br><br> | 来源：<code>https://youqihuafei.org.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://youren-de-feixing.com.cn
+</code></p><br><br><h3>大模型在能源领域应用，电网调度效率提升25%</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>https://youshuiruoruo.com.cn
+</code></p><br><br><h3>量子计算原型机新突破，量子科技板块集体拉升</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://youyoushipin.com.cn
+</code></p><br><br><h3>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://yuan-qiansui.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>英国经济止跌回升，二季度GDP同比增长0.6%。<br><br> | 来源：<code>https://yuan-shen-benzi.com.cn
+</code></p><br><br><h3>东方电缆异动拉升5.2%，海缆订单持续落地</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>https://yuan-shenbenzi.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上行，单季业绩预告超预期</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>https://yuan-zhi-kong.com.cn
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>https://yuanfende.com.cn
+</code></p><br><br><h3>银保监会出台新政，进一步降低实体经济融资成本</h3><br><p>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场。<br><br> | 来源：<code>https://yuankongzhi.com.cn
+</code></p><br><br><h3>农村物流体系建设规划，乡村物流标的全线异动</h3><br><p>中航沈飞涨超4.7%，军机交付进度超市场预期。<br><br> | 来源：<code>https://yuanshen-benzi.com.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>成渝双城经济圈政策加码，成渝板块标的全线上涨。<br><br> | 来源：<code>https://yuanshenbenziwang.com.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>https://yue-pao.cn
+</code></p><br><br><h3>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列</h3><br><p>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%。<br><br> | 来源：<code>https://yun-sports-pro.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>印度经济增速达7.2%，成为全球增长最快主要经济体。<br><br> | 来源：<code>https://yunkai-sports-pro.com.cn
+</code></p><br><br><h3>三一重工全球化布局：工程机械龙头的第二增长曲线</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>https://yunuxinjing.com.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域。<br><br> | 来源：<code>https://yuputuan.com.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>成都大运会成功举办一周年，赛事遗产带动城市文旅增长。<br><br> | 来源：<code>https://yuputuanzhi.com.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲</h3><br><p>华域汽车汽车零部件平台：国内汽车零部件龙头的价值。<br><br> | 来源：<code>https://zaixian-boduoyejieyi.com.cn
