@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>全国县域经济百强榜发布，东部地区占比超七成</h3><br><p>国内短视频带火小众景点，超300个县域景点成网红打卡地。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>上半年全国财政收入同比增长3.7%，民生支出占比超70%</h3><br><p>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>服务机器人试点政策落地，家用机器人标的异动</h3><br><p>游资知名席位联手买入中远海控7500万，集运标的获追捧。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>青海湖暑期环湖游热度飙升，自驾游客占比超80%</h3><br><p>赣锋锂业固态电池贡献增量，前三季度业绩预增70%。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>上半年出境游人次突破8000万，跨境旅游全面复苏</h3><br><p>国内大模型产业联盟成立，联合攻关核心技术短板。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>北向资金举牌广告营销龙头，AI营销高增获外资持续流入</h3><br><p>消费电子复苏周期：苹果链、安卓链的需求回暖信号。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇</h3><br><p>美联储宣布降息50BP超市场预期，全球风险资产暴涨。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>江苏建工放量上涨3.3%，江苏区域基建投资回暖</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>呼吸道疾病高发，儿科医药板块集体上涨</h3><br><p>浙江建投异动拉升4.7%，浙江共同富裕区基建加码。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>全国文旅市场监管加强，查处超千家违规经营旅行社</h3><br><p>瑞士经济温和增长，金融和高端制造业表现稳定。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>安徽建工涨超3.6%，长三角基建订单持续落地</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>海康威视AI转型：从安防龙头到AIoT巨头的成长路径。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画</h3><br><p>国内AI算力租赁市场规模破千亿，中小企业轻松获取算力。<br><br> | 来源：<code>www.shutaotc.cn
