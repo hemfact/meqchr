@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://jinpingmei-web.com.cn
+</code></p><br><br><h3>特变电工多晶硅布局：新能源全产业链的协同成长逻辑</h3><br><p>中芯国际行业格局分析：半导体制造国产替代的核心路径。<br><br> | 来源：<code>https://jinri-tongrenku.com.cn
+</code></p><br><br><h3>泸州老窖放量上涨4.4%，国窖1573批价稳步上行</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>https://jinritong.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://jinritongrenku.com.cn
+</code></p><br><br><h3>农村物流体系建设规划，乡村物流标的全线异动</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>https://jinsique.org.cn
+</code></p><br><br><h3>美联储降息预期升温，全球权益资产联动走强</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>https://jintiantangman.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>https://jiqing-wangzhan.com.cn
+</code></p><br><br><h3>全国荒漠化土地面积连续20年缩减，沙化治理成效突出</h3><br><p>北向资金连续加仓保利发展，央企地产获外资持续布局。<br><br> | 来源：<code>https://jiu-jiu-shipin.com.cn
+</code></p><br><br><h3>天齐锂业涨超5.8%，锂矿自给率优势持续凸显</h3><br><p>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩。<br><br> | 来源：<code>https://jiu-jiujiu.com.cn
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>https://jiu-seshipin.com.cn
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠。<br><br> | 来源：<code>https://jiu-you-tiyu.com.cn
+</code></p><br><br><h3>大湾区推出100条跨境文旅线路，港澳居民赴内地游热度飙升</h3><br><p>新型电力系统建设规划，电力设备板块走强。<br><br> | 来源：<code>https://jiu-you-yule.com.cn
+</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>央行下调SLF利率，货币政策宽松取向进一步明确。<br><br> | 来源：<code>https://jiu-youyule.cn
+</code></p><br><br><h3>中国网球选手首次夺得大满贯单打冠军，创造历史突破</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>https://jiucaoshequ.cn
+</code></p><br><br><h3>隆基绿能底部抬升，上升通道内的低吸窗口显现</h3><br><p>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破。<br><br> | 来源：<code>https://jiujiu-ai.com.cn
+</code></p><br><br><h3>先导智能跳空高开6.1%，锂电设备海外订单爆发</h3><br><p>荣盛石化新材料业务拓展：炼化企业的第二增长曲线。<br><br> | 来源：<code>https://jiujiu-cao.com.cn
+</code></p><br><br><h3>AI办公软件渗透率超60%，成为职场人必备工具</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>https://jiujiu-cha.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>全球跨境旅游人次上半年突破7亿，旅游业全面复苏。<br><br> | 来源：<code>https://jiujiu-jingpin.com.cn
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>药明康德CXO全球布局：全球医药研发外包的龙头价值。<br><br> | 来源：<code>https://jiujiu-jingpinshipin.com.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>极端暴雨灾害预警，水利基建标的全线上涨。<br><br> | 来源：<code>https://jiujiu-re.com.cn
