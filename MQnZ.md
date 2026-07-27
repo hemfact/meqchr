@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>华友钴业全产业链布局：新能源金属的全球龙头成长路径</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>大模型在城市治理领域应用，事件处理响应速度提升3倍。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>芬兰经济走出衰退，绿色技术产业拉动复苏。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>知名私募举牌MR产业链标的，调研后直接大额扫货</h3><br><p>国家文化数字化战略落地，文化资源线上共享覆盖全民。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>比亚迪Q3销量破百万，业绩预告同比翻倍。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>小鹏汽车单季交付破3万，业绩亏损大幅收窄</h3><br><p>AI绘画工具用户破亿，国潮风格生成模型成爆款。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>通用航空机场建设规划，通航运营板块集体上涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>中国曲棍球队亚运会夺冠，集体球类项目多点开花。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北方华创设备布局：半导体设备全品类覆盖的龙头价值</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓。<br><br> | 来源：<code>www.www.bbca.com.cn
