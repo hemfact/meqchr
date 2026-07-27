@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>万科A地产行业格局：龙头房企的抗风险能力与复苏空间。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>房贷利率下限进一步放宽，刚需购房成本大幅下降。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>世界文化遗产新增2处，我国世遗总数增至60处</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>2026年暑期文旅总收入突破2万亿，创历史同期新高</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全面降准叠加定向降息，宽货币向宽信用传导加速</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>稀土价格政策调控收储，稀土永磁标的全线拉升。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>美联储降息预期升温，全球权益资产联动走强。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国分布式能源装机规模突破12亿千瓦，就地就近消纳</h3><br><p>国内高端旅游产品走俏，定制游订单同比增长90%。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国风电发电量上半年同比增长38%，绿电交易规模突破2000亿千瓦时</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>浪潮信息放量上涨7.4%，AI服务器出货量超预期</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>保利发展央企销售高增，前三季度业绩预增超20%</h3><br><p>隆基绿能跳空高开，光伏赛道资金回流迹象明显。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>贵州茅台站稳1700元关口，白酒板块估值修复开启</h3><br><p>中国现代五项队世锦赛夺得金牌，全能项目实现突破。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>西班牙经济增速达2.8%，南欧经济表现亮眼</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>www.thepodala.com
