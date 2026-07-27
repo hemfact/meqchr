@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国垒球队获得亚运会银牌，项目普及度快速提升</h3><br><p>合肥推出“科里科气”文旅线路，科技研学游订单暴涨。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>卓胜微射频芯片积累：消费电子赛道的国产替代机会</h3><br><p>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>赣锋锂业突破20日线，短期反弹窗口开启。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>跨境电商综合试验区扩容，跨境物流板块集体上涨</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>全球碳交易市场规模突破5000亿美元，助力双碳目标</h3><br><p>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>容百科技放量拉升5.5%，高镍正极渗透率持续提升</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>央行下调MLF利率10BP，货币政策宽松力度加大</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>机构+北向合力买入思源电气5200万，电网设备标的布局</h3><br><p>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>大金重工塔筒出口翻倍，单季业绩预告超预期</h3><br><p>招商银行财富管理优势：零售银行龙头的第二增长曲线。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>牧原股份养殖成本下降，单季业绩预告环比扭亏</h3><br><p>国产网络文学出海市场规模突破40亿美元，全球读者超2亿。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>广汽集团涨超4.8%，埃安品牌月销破5万</h3><br><p>循环经济发展规划，资源回收标的全线拉升。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>土耳其经济通胀回落至30%，金融市场逐步稳定</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>上半年全国居民消费支出同比增长7.3%，服务消费占比提升</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>金风科技异动拉升4.5%，海上风电装机量超预期。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>国内大模型备案数量破千款，行业应用落地加速</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>汽车大模型落地智能座舱，语音交互响应速度低于1秒</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>锂价连续反弹三个月，锂矿板块集体走强。<br><br> | 来源：<code>www.www.bbca.com.cn
