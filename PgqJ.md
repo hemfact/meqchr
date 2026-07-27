@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>青海湖暑期环湖游热度飙升，自驾游客占比超80%</h3><br><p>全国城市黑臭水体治理完成率100%，居民亲水空间增加。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>2026年上半年国内旅游人次突破30亿，同比增长18%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>丹麦经济稳健增长，风电产业全球领先</h3><br><p>山东路桥放量上涨3.5%，基建订单持续饱满。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>暑期档电影票房突破200亿元，国产主旋律影片领跑市场</h3><br><p>三一重工海外收入翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>全国居民平均每日运动时长超1小时，运动习惯逐步养成</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>钯价连续上涨9%，汽车尾气催化板块盈利改善。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>首套房贷款利率突破3%关口，地产销售边际回暖信号显现</h3><br><p>电影产业促进法修订，影视院线板块走强。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>比亚迪垂直整合优势：供应链自主可控下的抗风险能力</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>派能科技海外认证优势：户用储能产品的全球准入壁垒</h3><br><p>中芯国际管理层优势：半导体制造龙头的经营效率提升。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>东莞控股放量上涨2.2%，珠三角车流量高增</h3><br><p>全国城市马拉松赛事数量突破1500场，覆盖所有省份。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>机构专用席位净买入容百科技8800万，高镍正极龙头加仓</h3><br><p>全球文化产业规模突破2.5万亿美元，数字文化占比提升。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>10年期国债收益率下行至历史低位，高股息资产配置价值凸显</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>亚太经合组织峰会召开，达成数字经济合作框架</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势</h3><br><p>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练。<br><br> | 来源：<code>www.gzly118.com
