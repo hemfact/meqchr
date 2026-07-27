@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>上海建工涨超2.9%，上海城市更新订单爆发。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>登海种业玉米种子优势：国内玉米种子赛道的龙头价值</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>正邦科技放量上涨4.5%，债务重组进展顺利</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>创新药医保谈判落地，创新药板块迎来情绪修复</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>上半年全国汽车出口突破230万辆，连续3年位居全球第一</h3><br><p>中国中冶冶金工程高增，单季业绩预告超预期。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>2026年全球经济增速达3.2%，实现温和复苏稳步增长。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>东北振兴政策升级，东北本地股板块走强。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入</h3><br><p>中国神华煤炭量价齐升，前三季度业绩预增超15%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>建筑节能改造政策，绿色建筑板块集体上涨</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>圣邦股份放量上涨4.6%，模拟芯片国产替代加速。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>正泰电器户用光伏装机超预期，前三季度业绩预增超25%</h3><br><p>安凯客车涨超4.3%，客车出口订单同比增长。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>外资持续流入浪潮信息，AI服务器龙头外资持仓占比突破3%</h3><br><p>重庆建工涨超3.2%，西部基建投资持续加码。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>北方稀土稀土全产业链布局：国内稀土龙头的政策红利</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>海上风电大基地集中开工，海缆产业链标的上涨。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>沙漠光伏基地建设规划，大基地光伏标的全线异动。<br><br> | 来源：<code>www.jogosdefutebol10.com
