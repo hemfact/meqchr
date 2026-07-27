@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>恩捷股份隔膜份额提升，单季业绩预告超预期。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>一带一路十周年峰会召开，中字头基建标的拉升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>中芯国际行业格局分析：半导体制造国产替代的核心路径</h3><br><p>客家文化申遗工作推进，千年迁徙文化得到系统性保护。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>蚝油产品价格上调3%，调味品全产业链盈利优化</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>海康威视AI业务高增，单季净利润同比增45%</h3><br><p>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>大模型在农业领域应用，病虫害识别准确率超97%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>新增开户数环比大增，互联网券商板块全线走强</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>头部券商调研固态电池标的，下一代技术落地时间表曝光</h3><br><p>游资顶级席位打板中兴通讯2.2亿，通信标的获短线资金热炒。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备</h3><br><p>赛力斯涨超8.1%，华为智选车型销量持续攀升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>中医药振兴发展规划，中药全板块集体上涨</h3><br><p>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>机构资金集中买入华域汽车7800万，零部件龙头获抱团</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>端侧大模型普及，旗舰手机本地运行70B参数大模型。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>中国中车全球轨道交通布局：一带一路带来的增量空间。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>金风科技风电整机技术：国内风电龙头的技术迭代路径</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>www.gntbz.cn
