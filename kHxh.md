@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>农药价格开启新一轮涨价，农化板块盈利弹性释放。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>全国地下水超采综合治理成效显著，水位回升超2米。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>民用无人机管理新规，无人机产业链全线走强。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>隆基绿能跳空高开，光伏赛道资金回流迹象明显</h3><br><p>中国围棋队包揽亚运会全部金牌，延续项目统治力。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>机构+北向合力买入当升科技8200万，正极材料标的布局。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>温氏股份管理优化：养殖行业底部的经营效率提升逻辑</h3><br><p>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>大秦铁路煤炭运输量回升，前三季度业绩预增超20%</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国马术赛事超百场，马术运动从小众走向大众</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>长征国家文化公园全面建成，红色旅游年接待人次突破15亿</h3><br><p>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入。<br><br> | 来源：<code>www.idmcinc.com
