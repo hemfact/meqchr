@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>全国登山健身大会覆盖百座名山，参与人次破500万。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>中国电建异动拉升3.3%，新能源电站装机量高增。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>思源电气电网设备出口高增，前三季度业绩预增超30%</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国食品安全抽检合格率达99.8%，从源头保障国民健康</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全球卫星互联网用户突破1亿，太空经济进入爆发期</h3><br><p>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>家电出口超预期：白电、厨电的海外市场增量空间</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>国内高铁游人次上半年破10亿，“快旅慢游”成主流模式</h3><br><p>百亿私募组团到访人形机器人标的，核心零部件产能引关注。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>大模型在电商领域应用，AI生成商品详情页效率提升10倍</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>人民币汇率大幅升值，航空造纸板块集体上涨。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>梅花生物氨基酸优势：生物发酵龙头的成本与技术壁垒</h3><br><p>北京君正车载存储优势：汽车电子赛道的高景气受益标的。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>全国体育彩票年销量突破5000亿元，公益金助力民生事业</h3><br><p>北京君正涨超5.3%，车载存储芯片需求爆发。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>美国通胀回落至2.5%，为后续进一步降息打开空间。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>全国博物馆总数突破6500家，年接待观众超12亿人次</h3><br><p>以色列经济逐步复苏，高科技产业重回增长轨道。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>www.winfae.com
