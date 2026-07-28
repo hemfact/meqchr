@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨。<br><br> | 来源：<code>https://aiqingdaoluntanyongjiuyuming.org.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://aiqingdaoluntanzaixian.org.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>招商公路平台化布局：全国公路网络的整合成长逻辑。<br><br> | 来源：<code>https://aiqingdaoluntanzaixianguankan.org.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导。<br><br> | 来源：<code>https://aiqingdaoshipin.org.cn
+</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善。<br><br> | 来源：<code>https://aiqingdaoshouyeluntan.org.cn
+</code></p><br><br><h3>璞泰来负极材料布局：锂电材料龙头的全产业链协同</h3><br><p>西藏暑期游热度创新高，进藏游客人次同比增长130%。<br><br> | 来源：<code>https://aiqingdaowangzhan.org.cn
+</code></p><br><br><h3>产业资本连续增持智能电网标的，特高压产业链获资本布局</h3><br><p>比亚迪AH股同步走强，新能源整车板块领涨两市。<br><br> | 来源：<code>https://aiqingdaowangzhi.org.cn
+</code></p><br><br><h3>新疆交建放量上涨4.1%，新疆区域基建投资持续升温</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>https://aiqingdaoxianlu.org.cn
+</code></p><br><br><h3>全国骑行赛事超千场，骑行运动参与人数破5000万</h3><br><p>民宿行业合规化推进，全国星级民宿数量突破2万家。<br><br> | 来源：<code>https://aiqingdaoyazhou.org.cn
+</code></p><br><br><h3>天邦食品涨超4.1%，养殖业务减亏效果显著</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>https://aiqingdaoyazhouluntan.org.cn
+</code></p><br><br><h3>服务贸易创新发展试点，服务贸易板块集体上涨</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>https://aiqingdaoyiluntanmianfeiluxian.org.cn
+</code></p><br><br><h3>四川路桥异动拉升3.8%，四川区域基建订单爆发</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>https://aiqingdaoyongjiuyuming.org.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>https://aiqingdaoyuming.org.cn
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>多地推出名校优生引进政策，博士落户直接发放20万安家补贴。<br><br> | 来源：<code>https://aiqingdaozaixian.org.cn
+</code></p><br><br><h3>爱尔兰经济保持稳定增长，高科技产业优势凸显</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>https://aiqingdaozaixianguankan.org.cn
+</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台。<br><br> | 来源：<code>https://aiqingdaozaixianluntan.org.cn
+</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>全国城镇调查失业率降至4.8%，就业形势保持总体稳定。<br><br> | 来源：<code>https://aiqingdaozuixinyuming.org.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>全国旅游志愿服务队伍超百万，提升游客出行体验。<br><br> | 来源：<code>https://aiweinaiwang.com.cn
+</code></p><br><br><h3>天赐材料异动拉升4.9%，电解液龙头成本优势凸显</h3><br><p>旅游服务质量提升政策，景区旅游板块走强。<br><br> | 来源：<code>https://aiyeapp.cn
+</code></p><br><br><h3>上半年全国集成电路产量同比增长18%，产业链自主可控推进</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>https://aiyeapp.net.cn
