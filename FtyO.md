@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>隆平高科种业业务爆发，前三季度业绩预增超50%</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>https://91kuaihuolin.cn
+</code></p><br><br><h3>上半年全国网上零售额同比增长9.5%，直播电商贡献突出</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>https://91liulanqi.cn
+</code></p><br><br><h3>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>https://91liulanqi.com.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>当升科技正极材料海外布局：高镍正极的全球份额扩张。<br><br> | 来源：<code>https://91liulanqiwangye.com.cn
+</code></p><br><br><h3>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://91manhua.cn
+</code></p><br><br><h3>中际旭创光模块技术优势：全球数通市场的份额扩张</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://91manhua.com.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>紫金矿业沿5日均线上行，趋势行情下的持仓策略。<br><br> | 来源：<code>https://91mianfeiban.com.cn
+</code></p><br><br><h3>超190家机构到访储能电池标的，海外户储订单超预期</h3><br><p>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期。<br><br> | 来源：<code>https://91n-com.com.cn
+</code></p><br><br><h3>东方财富互联网券商优势：流量变现的长期成长空间</h3><br><p>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿。<br><br> | 来源：<code>https://91ncc.com.cn
+</code></p><br><br><h3>全国人均预期寿命提升至79.8岁，主要健康指标居中高收入国家前列</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://91ncn.com.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>浪潮信息AI服务器出货超预期，单季业绩预增150%。<br><br> | 来源：<code>https://91ncom.cn
+</code></p><br><br><h3>中国女子冰球队世锦赛升组，重返顶级赛事行列</h3><br><p>晶澳科技涨超4.8%，光伏组件出口数据亮眼。<br><br> | 来源：<code>https://91ncom.com.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>中际旭创光模块技术：数通光模块全球龙头的份额逻辑。<br><br> | 来源：<code>https://91ncome2808b.com.cn
+</code></p><br><br><h3>国内大模型专利申请量全球第一，占比超60%</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://91ncon.com.cn
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://91niu.com.cn
+</code></p><br><br><h3>隆平高科种业业务爆发，前三季度业绩预增超50%</h3><br><p>海洋强国建设新规划发布，海洋经济总量突破9万亿元。<br><br> | 来源：<code>https://91nwang.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>大金重工塔筒全球布局：风电塔筒全球龙头的份额优势。<br><br> | 来源：<code>https://91pian.cn
+</code></p><br><br><h3>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大</h3><br><p>医疗器械创新绿色通道，创新器械板块异动。<br><br> | 来源：<code>https://91pian.com.cn
+</code></p><br><br><h3>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛</h3><br><p>中国女子棒球队闯入世界杯八强，项目发展迎来新机遇。<br><br> | 来源：<code>https://91piankan.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>长安汽车自主转型路径：从传统燃油车到新能源的蜕变。<br><br> | 来源：<code>https://91pianku.com.cn
