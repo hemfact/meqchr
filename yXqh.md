@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>https://hongtao-shipinzaixian.com.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>https://hongtao-tv.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径。<br><br> | 来源：<code>https://hongtao-yingyuan.com.cn
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>海大集团饲料技术优势：水产饲料龙头的研发壁垒。<br><br> | 来源：<code>https://hongtaoshipinguanwang.com.cn
+</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>地震应急响应升级，灾后重建板块异动。<br><br> | 来源：<code>https://hongtaoshipinmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>https://hongtaoshipinvip.com.cn
+</code></p><br><br><h3>两融余额创阶段新高，券商杠杆业务标的异动</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨。<br><br> | 来源：<code>https://hongtaoshipinyandex.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善。<br><br> | 来源：<code>https://hongtaoshipinzaixianguankan.com.cn
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://hongtaowang.com.cn
+</code></p><br><br><h3>家电出口超预期：白电、厨电的海外市场增量空间</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>https://hongtaoyingshidaquangaoqingoumeiju.com.cn
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>外资资管举牌固态电解质企业，下一代电池技术获外资重仓。<br><br> | 来源：<code>https://hongtaoyingshizaixianguankan.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野。<br><br> | 来源：<code>https://hongyun-wangzhi-vip.com
+</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://hq-bd-tiyu.com.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>https://hq-biyi-tiyu.com.cn
+</code></p><br><br><h3>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次</h3><br><p>中科院紫东太初大模型2.0发布，全模态能力国际领先。<br><br> | 来源：<code>https://hq-bw-tiyu.com.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>先导智能跳空高开6.1%，锂电设备海外订单爆发。<br><br> | 来源：<code>https://hq-fbsports.com.cn
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>https://hq-ff-tiyu.com.cn
+</code></p><br><br><h3>瑞士经济温和增长，金融和高端制造业表现稳定</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>https://hq-jb-tiyu.com.cn
+</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>北京君正涨超5.3%，车载存储芯片需求爆发。<br><br> | 来源：<code>https://hq-lebeijing-sports.com.cn
+</code></p><br><br><h3>招商公路涨超2.4%，公路运营龙头价值凸显</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>https://hq-leisu-sports.com.cn
